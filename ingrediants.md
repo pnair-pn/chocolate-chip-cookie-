@@ -1,0 +1,1 @@
+Need all-purpose flour, baking soda, salt, butter, sugar, eggs, vanilla, and chocolate chips.
